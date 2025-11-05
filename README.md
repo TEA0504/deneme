@@ -1,0 +1,1 @@
+ilk terminalden github kullanımım
